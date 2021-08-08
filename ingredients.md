@@ -1,0 +1,1 @@
+Ingredients: Rice, Canola Oil, Chicken thighs, Salt, Black pepper, Onion, Tomato paste, Garlic, Ginger, Garam masala, Chili powder, Turmeric, Tomato sauce, Chicken stock, Heavy cream, and Cilantro leaves.
